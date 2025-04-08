@@ -1,0 +1,2 @@
+# Fadhil-Learning-Japanese
+PROYEK APLIKASI PEMBELAJARAN BHS JEPANG
